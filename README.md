@@ -1,2 +1,2 @@
 # slide-html-css-js-
-![Alt text](relative/assets/preview.png?raw=true "Preview")
+![stack Overflow](https://venngage-wordpress.s3.amazonaws.com/uploads/2021/08/20-YouTube-Banner-Templates-YouTube-Branding-Tips-Blog-Header.png)
